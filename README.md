@@ -8,5 +8,5 @@
 
 ## Meta
 
-Your Name – [@YourTwitter](https://twitter.com/dbader_org) – sapwavino.samari@gmail.com
+Email – sapwavino.samari@gmail.com
 
